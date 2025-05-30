@@ -16,7 +16,7 @@
 
 **Some DNI's and BYI reminders**
 
-> DNI: If you ask for my gender, treat Pony Town (or any social games) likes a dating sim, rage baiters, religious individuals, homophobes, transphobes, flat earthers, racists, sexists (misogynsts and misandrists alike)
+> DNI: Trump supporters, If you treat Pony Town (or any social games) likes a dating sim, rage baiters, religious individuals, homophobes, transphobes, flat earthers, racists, sexists (misogynsts and misandrists alike)
 
 *it's 2025, let's be open minded*
 
