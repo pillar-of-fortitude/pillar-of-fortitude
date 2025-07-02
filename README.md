@@ -17,3 +17,4 @@
 
 (っ◔◡◔)っ ♥ read links attached to profile ♥ BYE BYEE~
 
+*ps. this is made in a computer so it might look weird for other devices*
