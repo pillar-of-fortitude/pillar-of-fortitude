@@ -12,7 +12,7 @@
 
 *it's 2025, let's be open minded*
 
->BYI: I am very chatty and I can go for hours if the conversation is something I'm passionate about. I'm a little 𝒻𝓇𝑒𝒶𝓀𝓎 when I'm with my friends. Interacting is ok if I'm not Away/Busy. Read my name and status first!
+>BYI: I am very chatty and I can go for hours if the conversation is something I'm passionate about. I'm a little 𝒻𝓇𝑒𝒶𝓀𝓎 when I'm with my friends. **Interacting is ok if I'm not Away/Busy**. Read my name and status first!
 
 
 (っ◔◡◔)っ ♥ read links attached to profile ♥ BYE BYEE~
