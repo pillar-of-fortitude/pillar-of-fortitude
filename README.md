@@ -18,4 +18,6 @@
 
 (っ◔◡◔)っ ♥ read links attached to profile ♥ BYE BYEE~
 
+[📝Atabook](https://mnmw.atabook.org/) II [💙Strawpage](https://minikoko.straw.page)
+
 *ps. this is made in a computer so it might look weird for other devices*
