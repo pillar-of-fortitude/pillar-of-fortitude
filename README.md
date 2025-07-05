@@ -8,7 +8,7 @@
 
 **Some DNI's and BYI reminders** (will add more in the future)
 
-> DNI: Trump supporters, If you treat Pony Town (or any social games) likes a dating sim, rage baiters, religious individuals, homophobes, transphobes, flat earthers, racists, sexists (misogynsts and misandrists alike), AI "artists", if you think other people are subjected to follow your opinions
+> DNI: Trump supporters, If you treat Pony Town (or any social games) likes a dating sim, rage baiters, religious individuals, homophobes, transphobes, flat earthers, racists, sexists (misogynsts and misandrists alike), AI "artists", l0licons, if you think other people are subjected to follow your opinions
 
 *it's 2025, let's be open minded*
 
