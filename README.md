@@ -1,6 +1,6 @@
         "ᴡᴇʟʟ, ɪ ᴄᴏɴꜱɪᴅᴇʀ ᴍʏꜱᴇʟꜰ ᴍᴇʀᴇʟʏ ᴀ ꜱᴇʀɪᴏᴜꜱ, ᴅᴜᴛɪꜰᴜʟ ᴘᴜʙʟɪᴄ ꜱᴇʀᴠᴀɴᴛ ᴡʜᴏ ᴏᴡᴇꜱ ʜɪꜱ ᴀʟʟᴇɢɪᴀɴᴄᴇ ᴛᴏ ᴛʜᴇ ᴀʟᴍɪɢʜᴛʏ ꜱʜᴏɢᴜɴ."
 <p align="center">
-        <img width="800" height="100" src="!(https://github.com/user-attachments/assets/aebbc9d8-1017-44a5-bf68-8e810c0d6bc7)">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/66199d70-5e93-4cb6-a0a9-9e2ff42375dd">
 </p>
 
   𝙈𝙞𝙣𝙬𝙤𝙤 ⊹ ࣪ ˖ ①⑨ ⊹ ࣪ ˖ 
@@ -21,4 +21,6 @@
 
 [📝Atabook](https://mnmw.atabook.org/) II [💙Strawpage](https://minikoko.straw.page)
 
-*ps. this is made in a computer so it might look weird for other devices*
+<p align="center">
+  <img width="1000" height="80" src="https://github.com/user-attachments/assets/f903b624-d561-49d4-bb39-0d33924ccb78">
+</p>
