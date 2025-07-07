@@ -29,5 +29,8 @@
   <img width="1000" src="https://files.catbox.moe/29t38n.jpg">
 </p>
 
-[📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://minikoko.straw.page) <img width="750" height="80" src="https://files.catbox.moe/gjb6zj.png">
+[📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://minikoko.straw.page) 
+
+<p align="center">
+  <img width="1000" src="https://files.catbox.moe/gjb6zj.png">
 </p>
