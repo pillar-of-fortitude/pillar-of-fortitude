@@ -23,13 +23,11 @@
 
 **Interacting is ok if I'm not Away🌙/Busy⛔**. Read my name and status first!
 
-(っ◔◡◔)っ ♥ read links attached to profile ♥ BYE BYEE~
-
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/29t38n.jpg">
 </p>
 
-[📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://minikoko.straw.page) 
+(っ◔◡◔)っ ♥ °·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·-> [📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://minikoko.straw.page) 
 
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/gjb6zj.png">
