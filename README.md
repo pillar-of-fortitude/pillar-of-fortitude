@@ -12,7 +12,7 @@
 
 <p align= "center"> Curious or simply passing by? 
 
-(っ◔◡◔)っ ♥ °·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸-> [📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://minikoko.straw.page) 
+(っ◔◡◔)っ ♥ °·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°-> [📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://minikoko.straw.page) 
 
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/wqzkno.webp" alt="description of your image">
