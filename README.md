@@ -27,9 +27,12 @@
 
 ***BYI***: I am very chatty and I can go for hours if the conversation is something I'm passionate about. I'm a little 𝒻𝓇𝑒𝒶𝓀𝓎 when I'm with my friends. Feel free to use tone tags, i don't really mind. I'm also a little confused with abbreviated or shortened words in english (its not my first language)
 
-**PLEASE READ PLEASE READ PLEASE READ‼️‼️‼️**
+<p align= "center"> **PLEASE READ PLEASE READ PLEASE READ‼️‼️‼️**
 
-***Interacting is ok if I'm not Away🌙/Busy⛔***. Read my name and status first! *I only cuddle and sit by people I like or I'm friends with but anyone is free to INT!*
+<p align= "center"> ***Interacting is ok if I'm not Away🌙/Busy⛔***. 
+
+<p align= "center"> Otherwise, expect late or no response from me
+<p align= "center">Read my name and status first! *I only cuddle and sit by people I like or I'm friends with but anyone is free to INT!*
 
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/gjb6zj.png">
