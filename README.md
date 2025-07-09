@@ -23,14 +23,16 @@
 
 ***DNI***: Trump supporters, If you treat Pony Town (or any social games) likes a dating sim, rage baiters, religious individuals, homophobes, transphobes, flat earthers, racists, sexists (misogynsts and misandrists alike), AI "artists", l0licons, if you think other people are subjected to follow your opinions
 
-*it's 2025, let's be open minded*
+---
 
 ***BYI***: I am very chatty and I can go for hours if the conversation is something I'm passionate about. I'm a little 𝒻𝓇𝑒𝒶𝓀𝓎 when I'm with my friends. Feel free to use tone tags, i don't really mind. I'm also a little confused with abbreviated or shortened words in english (its not my first language)
 
-<p align= "center"> Interacting is ok if I'm not Away🌙/Busy⛔. 
+---
+
+<p align= "center"> 𝐈𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐢𝐬 𝐨𝐤 𝐢𝐟 𝐈'𝐦 𝐧𝐨𝐭 𝐀𝐰𝐚𝐲🌙/𝐁𝐮𝐬𝐲⛔. 
 
 <p align= "center"> Otherwise, expect late or no response from me
-<p align= "center">Read my name and status first! *I only cuddle and sit by people I like or I'm friends with but anyone is free to INT!*
+<p align= "center"> Read my name and status first! *I only cuddle and sit by people I like or I'm friends with but anyone is free to INT!*
 
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/gjb6zj.png">
