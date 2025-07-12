@@ -29,6 +29,12 @@
 
 ---
 
+🎀  𝑀𝓎 𝓅𝓇𝑒𝒸𝒾♡𝓊𝓈  🎀 
+
+[𝕄𝕒𝕝𝕫 🐶](https://github.com/Toixqq) ¸¸♩·¯·♬¸¸ ¸¸♩·¯·♬¸¸ 𝗪𝗿𝗶𝗼/𝗥𝗶𝗰𝗲 🐺 ¸¸♩·¯·♬¸¸ ¸¸♩·¯·♬¸¸ Ｍｉｓａｋｉ 💙 ¸¸♩·¯·♬¸¸ ¸¸♩·¯·♬¸¸  [𝐁𝐮𝐧𝐧𝐲🐇](https://github.com/TanjiroIrl) ¸¸♩·¯·♬¸¸ ¸¸♩·¯·♬¸¸ 𝙓𝙚𝙧𝙚𝙥𝙝𝙞𝙡𝙨𝙚 🎤 ¸¸♩·¯·♬¸¸ ¸¸♩·¯·♬¸¸
+
+---
+
 <p align= "center"> 𝐈𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐢𝐬 𝐨𝐤 𝐢𝐟 𝐈'𝐦 𝐧𝐨𝐭 𝐀𝐰𝐚𝐲🌙/𝐁𝐮𝐬𝐲⛔. 
 
 <p align= "center"> Otherwise, expect late or no response from me
