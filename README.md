@@ -27,16 +27,14 @@
 
 ---
 
-<p align="center"> 🎀  ˜”*°•.˜”*°• The special people •°*”˜.•°*”˜  🎀 
-
-[𝕄𝕒𝕝𝕫 🐶](https://github.com/Toixqq) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝗪𝗿𝗶𝗼/𝗥𝗶𝗰𝗲 🐺 ¸¸♩·¯·♬¸¸  𓂃  𓂃  Ｍｉｓａｋｉ 💙 ¸¸♩·¯·♬¸¸ 𓂃  𓂃   [𝐁𝐮𝐧𝐧𝐲🐇](https://github.com/TanjiroIrl) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝙓𝙚𝙧𝙚𝙥𝙝𝙞𝙡𝙨𝙚 🎤 ¸¸♩·¯·♬¸¸  𓂃  𓂃 
-
----
-
 <p align= "center"> 𝐈𝐧𝐭𝐞𝐫𝐚𝐜𝐭𝐢𝐧𝐠 𝐢𝐬 𝐨𝐤 𝐢𝐟 𝐈'𝐦 𝐧𝐨𝐭 𝐀𝐰𝐚𝐲🌙/𝐁𝐮𝐬𝐲⛔. 
 
 <p align= "center"> Otherwise, expect late or no response from me
 <p align= "center"> Read my name and status first! 𝙄 𝙤𝙣𝙡𝙮 𝙘𝙪𝙙𝙙𝙡𝙚 𝙖𝙣𝙙 𝙨𝙞𝙩 𝙗𝙮 𝙥𝙚𝙤𝙥𝙡𝙚 𝙄 𝙡𝙞𝙠𝙚 𝙤𝙧 𝙄'𝙢 𝙛𝙧𝙞𝙚𝙣𝙙𝙨 𝙬𝙞𝙩𝙝 𝙗𝙪𝙩 𝙖𝙣𝙮𝙤𝙣𝙚 𝙞𝙨 𝙛𝙧𝙚𝙚 𝙩𝙤 𝙄𝙉𝙏!
+
+<p align="center"> 🎀  ˜”*°•.˜”*°• The special people •°*”˜.•°*”˜  🎀 
+
+[𝕄𝕒𝕝𝕫 🐶](https://github.com/Toixqq) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝗪𝗿𝗶𝗼/𝗥𝗶𝗰𝗲 🐺 ¸¸♩·¯·♬¸¸  𓂃  𓂃  Ｍｉｓａｋｉ 💙 ¸¸♩·¯·♬¸¸ 𓂃  𓂃   [𝐁𝐮𝐧𝐧𝐲🐇](https://github.com/TanjiroIrl) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝙓𝙚𝙧𝙚𝙥𝙝𝙞𝙡𝙨𝙚 🎤 ¸¸♩·¯·♬¸¸  𓂃  𓂃 
 
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/gjb6zj.png">
