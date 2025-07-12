@@ -23,8 +23,6 @@
 
 ***DNI***: Trump supporters, If you treat Pony Town (or any social games) likes a dating sim, rage baiters, religious individuals, homophobes, transphobes, flat earthers, racists, sexists (misogynsts and misandrists alike), AI "artists", l0licons, if you think other people are subjected to follow your opinions
 
----
-
 ***BYI***: I am very chatty and I can go for hours if the conversation is something I'm passionate about. I'm a little 𝒻𝓇𝑒𝒶𝓀𝓎 when I'm with my friends. Feel free to use tone tags, i don't really mind. I'm also a little confused with abbreviated or shortened words in english (its not my first language)
 
 ---
