@@ -43,7 +43,7 @@
 
 <p align="center"> 🎀  ˜”*°•.˜”*°• The special people •°*”˜.•°*”˜  🎀 
 
-[𝕄𝕒𝕝𝕫 🐶](https://github.com/Toixqq) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝗪𝗿𝗶𝗼/𝗥𝗶𝗰𝗲 🐺 ¸¸♩·¯·♬¸¸  𓂃  𓂃  Ｍｉｓａｋｉ 💙 ¸¸♩·¯·♬¸¸ 𓂃  𓂃   [𝐁𝐮𝐧𝐧𝐲🐇](https://github.com/TanjiroIrl) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝙓𝙚𝙧𝙚𝙥𝙝𝙞𝙡𝙨𝙚 🎤 ¸¸♩·¯·♬¸¸  𓂃  𓂃  [ρꫀ᥅ᦓꫀρꫝꪮꪀꫀ 🦋](https://github.com/Euphonic-Chrysalis) ¸¸♩·¯·♬¸¸  𓂃  𓂃
+[𝕄𝕒𝕝𝕫 🐶](https://github.com/Toixqq) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝗪𝗿𝗶𝗼/𝗥𝗶𝗰𝗲 🐺 ¸¸♩·¯·♬¸¸  𓂃  𓂃  Ｍｉｓａｋｉ 💙 ¸¸♩·¯·♬¸¸ 𓂃  𓂃   [𝐁𝐮𝐧𝐧𝐲🐇](https://github.com/TanjiroIrl) ¸¸♩·¯·♬¸¸  𓂃  𓂃  𝙓𝙚𝙧𝙚𝙥𝙝𝙞𝙡𝙨𝙚 🎤 ¸¸♩·¯·♬¸¸  𓂃  𓂃  [ρꫀ᥅ᦓꫀρꫝꪮꪀꫀ 🦋](https://github.com/Euphonic-Chrysalis) ¸¸♩·¯·♬¸¸  𓂃  𓂃 [𝕄𝕚𝕜𝕠 🌺](https://github.com/Lil-Devil8) ¸¸♩·¯·♬¸¸ 𓂃  𓂃
 
 <p align="center">
   <img width="1000" src="https://files.catbox.moe/gjb6zj.png">
