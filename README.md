@@ -10,7 +10,7 @@
 
 <p align= "center"> 𝙈𝙞𝙣𝙬𝙤𝙤 ⊹ ࣪ ˖ ①⑨ ⊹ ࣪ ˖ 
 
-<p align= "center"> Curious or simply passing by? 
+<p align= "center"> Chronic Afk-er, either offtab or AFK (whisp to INT) 
 
 (っ◔◡◔)っ ♥ °·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·°¯°·.¸.·-> [📝ᗩTᗩᗷOOK](https://mnmw.atabook.org/) II [💙Sᖶᖇᗩᘺᕵᗩᘜᘿ](https://mnwo.straw.page) 
 
